@@ -22,6 +22,8 @@ https://www.architecturaldigest.com/video/watch/walking-tour-architect-explores-
 https://www.youtube.com/watch?v=zAAmRaJlVQI
 Artful Interiors of the Upper East Side
 
+Boundaries of upper east side historical district
+https://www.nyc.gov/assets/lpc/downloads/pdf/maps/HistoricDistrictMaps/Manhattan/Upper_East_Side.pdf
 
 https://www.6sqft.com/the-upper-east-side-historic-districts-oldest-home-asks-13-9m/
 
