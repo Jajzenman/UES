@@ -4,6 +4,7 @@ Upper East Side Historical District (E 70's)
 Landmarks Preservation Commission
 https://www.nyc.gov/site/lpc/index.page
 
+https://en.wikipedia.org/wiki/Upper_East_Side
 
 Upper East Side Historical District Designation Report (1981)
 https://s-media.nyc.gov/agencies/lpc/lp/1051.pdf
